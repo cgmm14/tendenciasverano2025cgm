@@ -1,0 +1,1 @@
+# tendenciasverano2025cgm
